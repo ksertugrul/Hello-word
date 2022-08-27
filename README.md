@@ -1,2 +1,5 @@
 # Hello-word
-this is my first public repository
+what about this
+
+im so happy cause today i found my friends 
+
